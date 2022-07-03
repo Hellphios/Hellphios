@@ -14,7 +14,7 @@
 
 •😈• **Busco Crianças**
 
-•🥂• **Colecionador iniciante**: *Coleciono números de mães, deseja contribuir com a coleção de uma pobre pessoa?*
+•🥂• **Colecionador iniciante**: *Coleciono números de mães, deseja contribuir com a coleção deste pobre sonhador?*
 (indireta direta para @Gbelzim)
 
 
