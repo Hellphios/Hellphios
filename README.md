@@ -10,8 +10,6 @@
 
 •⛩️• *Emo sai da chuva, todo dia isso.....*
 
-•😈• **Busco Crianças**
-
 •🥂• **Colecionador iniciante**: *Coleciono números de mães, deseja contribuir com a coleção deste pobre sonhador?*
 (indireta direta para @Gbelzim)
 
