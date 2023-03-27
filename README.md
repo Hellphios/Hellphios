@@ -6,8 +6,6 @@
 
 •⚖️• *INFJ*
 
-•🎸• *Ele/Dele (no sigilo)*
-
 •☕• *sus*
 
 •⛩️• *Emo sai da chuva, todo dia isso.....*
